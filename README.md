@@ -1,2 +1,2 @@
 # viruses-for-chromebooks
-you can use anything here but if its for commercial use give me credit
+you can use anything here but if its for commercial use than give me credit
